@@ -12,7 +12,7 @@ Currently supported by **[ESGI Aix-en-Provence](https://www.esgi.fr/)**, I'm loo
 
 ## About me
 
-* 🏃 Ex high jump athlete, now and lifelong sports enthusiast now exploring different sports (contemporary dance, trekking, running...)
+* 🏃 Ex high jump athlete and lifelong sports enthusiast now exploring different sports (contemporary dance, trekking, running...)
 * 🎧 Former audio professional with experience in a neuroscience startup, studio, radio and live environments
 * 🎨 Creative person with a passion for music composition, singing, voice acting and artistic projects
 
